@@ -1,1 +1,0 @@
-# okayamatoyotasystemservice.github.io
